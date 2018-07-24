@@ -1,1 +1,2 @@
 LISTA DE PARTICIPANTES DEL CURSO
+Vladimir Platero Delgadillo  67476998
